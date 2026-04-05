@@ -1,1 +1,1 @@
-# suparnapal.github.io
+# suparnapal
